@@ -1,4 +1,4 @@
-    I think the most important part I learned about the social networking presentation is the importance of not purely
+I think the most important part I learned about the social networking presentation is the importance of not purely
 trying to sell yourself.
 Every speech class and business class I have had always mentions how this is the chance to sell yourself so to go all out.
 It was surprising, yet inspiring, to hear that it should never be a priority, as you will sell yourself by establishing that connection.
